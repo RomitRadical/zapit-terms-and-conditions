@@ -1,4 +1,4 @@
-# Zapit Terms of use
+# TERMS OF USE
 
 Last updated March 15, 2020
  
